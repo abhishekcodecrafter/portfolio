@@ -13,6 +13,6 @@ For links ctrl +f to find http and then select all http lines and then replace a
 You can DM me on :- 
 instagram https://instagram.com/abhishek._.developer
 Contact Me On Whatsapp :-
-+917073160557
+https://wa.me/917073160557
 
 # ThankYou 
